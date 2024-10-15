@@ -1,1 +1,0 @@
-# alikivasaki.github.io
